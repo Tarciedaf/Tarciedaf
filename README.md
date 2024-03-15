@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tarciedaf
-- 👀 I’m interested in:video games,game development,history and board games
+- 👀 I’m interested in:video games,game development,web development and board games
 - 🌱 I’m currently learning:programming and economics
 - 💞️ I’m looking to collaborate on:anything im interested in and outdoor activities
 - 📫 How to reach me:tarciedaf_42069 on discord
